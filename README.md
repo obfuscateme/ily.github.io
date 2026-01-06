@@ -1,1 +1,1 @@
-for anyone wonder ts didnt pan out🥀
+for anyone wondering ts didnt pan out🥀
